@@ -4,7 +4,7 @@
   <a href="https://rentry.co/tropfan"><img src="https://64.media.tumblr.com/9396d0419122b6a6b1178811c5f5a8d3/113ddf0571b3691d-c4/s250x400/e4edb513c4fe9f6cafaa71dc12fafe93a2d9e96e.pnj" width="150"></a> <a href="https://rentry.co/suicide_parade"><img src="https://64.media.tumblr.com/8ec91f1a6d6517a0c06b3a5690a2bafb/113ddf0571b3691d-98/s250x400/6eb05ba1651219dba65551a02326932ad6eb33f3.pnj" width="150"></a> <br> <a href="https://pronouns.cc/@IGNTR"><img src="https://64.media.tumblr.com/5219e67c539da347cc95b6cf538a450c/113ddf0571b3691d-02/s250x400/3ccaddde28df81c4b7121ffc5d9aca4bf80d0718.pnj" width="150"></a> <a href="https://ivandrew.atabook.org/"><img src="https://64.media.tumblr.com/0a71b12dd4e8d0445988339de52d9d13/113ddf0571b3691d-13/s250x400/cee3ffd18a6b1d440d58131d4c2bcf6496cfa92b.pnj" width="150"></a>
 
 <details>
-<summary><i><b> titles !!!</b></i></summary>
+<summary><img src="https://64.media.tumblr.com/c2ab41b4768b4b0da36e929541eab47d/d3e7e4d73703c390-fa/s400x600/4901179360cfa2e6df5bdb8b9cfe10a30cd1f609.pnj" alt="titles !!!" width="100"></summary>
 
 <div align="center">
 
@@ -35,7 +35,6 @@ craig tucker of pt !
 number 1 fan of doublezipper + jackzon ztorm !!!
 
 <a href="https://github.com/ship-town">zhip-town</a>, <a href="https://github.com/fans-town">fanz-town</a>
-
 
 <br>
 
