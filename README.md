@@ -10,6 +10,8 @@
 
 <br>
 
+all of these titles still have my old username @kniferrific
+
 LARPDUO [@drfunkbeat](https://github.com/drfunkbeat) !!!
 
 <a href="https://github.com/pt-friendships">pt-friendzhipz</a>, <a href="https://github.com/pt-ship-nominations">pt-zhip-nominationz</a>
