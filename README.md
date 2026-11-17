@@ -47,6 +47,22 @@ thank u 4 all da n0minationz, yaya!!!
 </details>
 
 
+<details>
+<summary><img src="https://64.media.tumblr.com/0a596b318538a3c2f774cce81d85b830/1d5f167178e9186b-0e/s400x600/799d7eddc4bb7b6bf18355d96b85e3b551bb8ede.pnj" alt="oomflingz" width="100"></summary>
+
+<div align="center">
+
+<br>
+
+<img src="https://64.media.tumblr.com/ebc846cb9711e2cbdf7fac8ffa3e0903/ded1fb9f435695f7-3d/s400x600/7a6d035bfa59b5dd5c1ae8982ff0488e71dd351d.pnj">
+
+will add more! ily all zo much ! 💚
+
+</div>
+
+</details>
+
+
 <img src="https://64.media.tumblr.com/da8a46f9d8fd02667997961fee50dd27/113ddf0571b3691d-c0/s640x960/2b6c22b1e4853936c260c2a0a5f54fbbc8d6071c.pnj"> <a href="https://zipped-up.fandom.com/wiki/D.O.M"><img src="https://64.media.tumblr.com/0e91db589e4be37b15d6db6b6de53348/113ddf0571b3691d-cf/s2048x3072/c2d303887784cb2cf8310f1ef02aa2c7253b16f8.pnj"></a>
 <a href="https://zipped-up.fandom.com/wiki/D.O.M"><img src="https://64.media.tumblr.com/f9de46c15b1a25c5ea8416286e113a70/d99fd83863f8255d-f1/s640x960/d97df4ab56abb12bd1c9c732afbb3c04884032a0.gifv"></a>
 <br><br>
