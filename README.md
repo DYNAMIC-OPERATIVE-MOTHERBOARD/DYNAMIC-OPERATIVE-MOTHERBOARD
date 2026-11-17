@@ -47,10 +47,10 @@ thank u 4 all da n0minationz, yaya!!!
 </details>
 
 
-<img src="https://64.media.tumblr.com/da8a46f9d8fd02667997961fee50dd27/113ddf0571b3691d-c0/s640x960/2b6c22b1e4853936c260c2a0a5f54fbbc8d6071c.pnj"> <img src="https://64.media.tumblr.com/0e91db589e4be37b15d6db6b6de53348/113ddf0571b3691d-cf/s2048x3072/c2d303887784cb2cf8310f1ef02aa2c7253b16f8.pnj">
+<img src="https://64.media.tumblr.com/da8a46f9d8fd02667997961fee50dd27/113ddf0571b3691d-c0/s640x960/2b6c22b1e4853936c260c2a0a5f54fbbc8d6071c.pnj"> <a href="https://zipped-up.fandom.com/wiki/D.O.M"><img src="https://64.media.tumblr.com/0e91db589e4be37b15d6db6b6de53348/113ddf0571b3691d-cf/s2048x3072/c2d303887784cb2cf8310f1ef02aa2c7253b16f8.pnj"></a>
 <a href="https://zipped-up.fandom.com/wiki/D.O.M"><img src="https://64.media.tumblr.com/f9de46c15b1a25c5ea8416286e113a70/d99fd83863f8255d-f1/s640x960/d97df4ab56abb12bd1c9c732afbb3c04884032a0.gifv"></a>
 <br><br>
-<img src="https://64.media.tumblr.com/5b68a6b035dd5085b567ecbf0a6790df/113ddf0571b3691d-a1/s2048x3072/47e2834ec4acb5e4d5db1f12e881b072a24ebb34.pnj">
+<a href="https://zipped-up.fandom.com/wiki/D.O.M"><img src="https://64.media.tumblr.com/5b68a6b035dd5085b567ecbf0a6790df/113ddf0571b3691d-a1/s2048x3072/47e2834ec4acb5e4d5db1f12e881b072a24ebb34.pnj"></a>
 <img src="https://64.media.tumblr.com/87ca8c308a2fcad032adef5d6dd394eb/113ddf0571b3691d-b3/s1280x1920/d5982c9b27c28eb094b6e571370a9791bca43a61.pnj">
 <br><br>
 <img src="https://64.media.tumblr.com/07a18aeb6db5780be9de02e856ee3568/113ddf0571b3691d-c7/s1280x1920/198f4becb6d26d0010a65c5584e08e23bfdb778a.pnj"> </div>
