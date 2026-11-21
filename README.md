@@ -60,6 +60,8 @@ thank u 4 all da n0minationz, yaya!!!
 
 <img src="https://64.media.tumblr.com/3eefd9dc2e8e556cb381bc19b85095a9/989fb886cb2472cc-4f/s250x400/c51dc51be477cb291e9fa0f627e403a12fdf4bab.pnj"> gulp! zo many oomfz!!!
 
+<img src="https://64.media.tumblr.com/11720c2730503f1c37234523b90bca2d/f255745593d7f2d4-f6/s640x960/1da7aee46b51235b8dd00d0b4e163f646b3d82c3.pnj">
+
 will add more! ily all zo much ! 💚
 
 </div>
