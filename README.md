@@ -10,7 +10,7 @@
 
 <br>
 
-all of these titles still have my old username @kniferrific
+most of these still have my old username @kniferrific
 
 LARPDUO [@drfunkbeat](https://github.com/drfunkbeat) !!!
 
