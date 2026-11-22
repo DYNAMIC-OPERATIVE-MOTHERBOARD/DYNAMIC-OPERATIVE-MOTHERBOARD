@@ -62,7 +62,7 @@ thank u 4 all da n0minationz, yaya!!!
 
 <img src="https://64.media.tumblr.com/11720c2730503f1c37234523b90bca2d/f255745593d7f2d4-f6/s640x960/1da7aee46b51235b8dd00d0b4e163f646b3d82c3.pnj">
 
-<img src="https://64.media.tumblr.com/a6671544c76721fe59872f264a5a1ce2/1bf6f66726b99aa8-99/s1280x1920/f468c038d5c6686261732b93b1f7e478859e86f5.pnj">
+<img src="https://64.media.tumblr.com/b643153e6399a6a25089d3ef3d9368dc/922cbd8bf6fdd09a-f0/s1280x1920/099dd0486b03b354478698065d9af029e2267632.pnj">
 
 will add more! ily all zo much ! 💚
 
